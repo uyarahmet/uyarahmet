@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @uyarahmet
-- 👀 I’m interested in simulating history
+- 👀 I’m interested in history 
 - 🌱 I’m currently pursuing my bachelors degree at Koç University
 - 📫 Reach me out from auyar19@ku.edu.tr

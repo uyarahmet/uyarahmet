@@ -2,3 +2,4 @@
 - 👀 I’m deeply interested in history 
 - 🌱 I’m currently pursuing my bachelors degree at Koç University
 - 📫 Reach me out from auyar19@ku.edu.tr
+- :bookmark_tabs: 

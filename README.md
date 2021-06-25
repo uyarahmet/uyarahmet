@@ -3,4 +3,4 @@
 - 🌱 I’m currently pursuing my bachelors degree at Koç University
 - 📫 Reach me out from auyar19@ku.edu.tr
 - :bookmark_tabs: You can reach to my resume [here](https://user-images.githubusercontent.com/85699024/122618992-6cc02600-d05d-11eb-93fb-f92b659574c4.png)
-- 🧾 Visit my website at [uyarahmet.com](uyarahmet.com)
+- 🧾 Visit my website at [uyarahmet.com](https://uyarahmet.com)

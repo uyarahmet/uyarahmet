@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @uyarahmet
 - 👀 Interested in history, modeling, and simulation
-- 🌱 I’m currently pursuing my bachelors degree at Koç University
+- 🌱 I just graduated from Koç University!
 - 📫 Reach me out at auyar19@ku.edu.tr

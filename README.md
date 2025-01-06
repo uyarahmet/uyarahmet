@@ -1,4 +1,1 @@
 - 👋 Hi, I’m @uyarahmet
-- 👀 Interested in history, modeling, and simulation
-- 🌱 I just graduated from Koç University!
-- 📫 Reach me out at auyar19@ku.edu.tr
